@@ -1,0 +1,1 @@
+# snpcoin.github.io
